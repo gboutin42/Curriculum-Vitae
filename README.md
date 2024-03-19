@@ -2,7 +2,7 @@
 This is my *__Curriculum-Vitae__*,  
 * Download it  
 * Read it   
-* __Engaged me !__
+* __Hire me !__
 
 Or you can contact me directly with my email address !
 
